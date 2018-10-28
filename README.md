@@ -6,6 +6,6 @@ Originally presented to the University of Helsinki for a bachelor's degree in so
 
 Contact:
 
-[taneli.saastamoinen@gmail.com](mailto:taneli.saastamoinen@gmail.com)
-[https://lobotomys.blogspot.com/](https://lobotomys.blogspot.com/)
-[https://www.linkedin.com/in/tanelisaastamoinen/](https://www.linkedin.com/in/tanelisaastamoinen/)
+[taneli.saastamoinen@gmail.com](mailto:taneli.saastamoinen@gmail.com)  
+[https://lobotomys.blogspot.com/](https://lobotomys.blogspot.com/)  
+[https://www.linkedin.com/in/tanelisaastamoinen/](https://www.linkedin.com/in/tanelisaastamoinen/)  
